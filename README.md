@@ -1,4 +1,4 @@
 KnowledgeBase
 =============
 
-Al you need to know to be free, cool &amp; in ;)
+All you need to know to be free, cool &amp; in ;)
